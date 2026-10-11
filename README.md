@@ -1,1 +1,1 @@
-# MuerteAsegurada666
+te clavare un tentaculo que viaja desde mi interior a mi espalda y de mi espalda a tu cabeza, y despues te comere poniendote sal, siempre le hago eso a los cerdos y humanos, y es muy divertido :)
